@@ -7,3 +7,5 @@ Initialize repozitory -> click
    # labas
    asdsdfs
 sfsfsfs
+gjjgj
+
