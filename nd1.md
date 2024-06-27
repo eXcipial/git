@@ -31,4 +31,9 @@
 > Stallion if she would collab with me
 > Would I really have a shot at a feat? (Haha)
 > I don't know, but I'm glad to be back like
+>
+> Abra-abracadabra (And for my last trick)
+> I'm 'bout to reach in my bag, bruh (Like)
+> Abra-abracadabra (And for my last trick, poof)
+> Just like that and I'm back, bro
 >```
