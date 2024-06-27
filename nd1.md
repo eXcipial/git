@@ -36,4 +36,28 @@
 > I'm 'bout to reach in my bag, bruh (Like)
 > Abra-abracadabra (And for my last trick, poof)
 > Just like that and I'm back, bro
+> 
+> Now, back in the days of old me (When?)
+> Right around the time I became a dope fiend (Oh)
+> Ate some codeine as a way of coping (Mm)
+> Taste of opiates, case of O.E.
+> Turned me into smiley face emoji (Woo)
+> My shit may not be age-appropriate
+> But I will hit an eight-year-old in the face with a participation trophy
+> 'Cause I have zero doubts
+> That this whole world's 'bout
+> To turn into some girl scouts
+> That censorship bureau's out to (Shut me down)
+> So when I started this verse
+> It did start off lighthearted at first (Hmm)
+> But it feels like I'm targeted
+> Mind-bogglin' how my profit has skyrocketed
+> Look what I pocketed
+> Yeah, the shit is just like y'all had been light joggin', and
+> I've been runnin' at full speed
+> And that's why I'm ahead like my noggin', and
+> I'm the fight y'all get in
+> When you debate who the best, but opps, I'm white chalkin' when
+> I step up to that mic, cock it then
+> "Oh my God, it's him! Not again!"
 >```
